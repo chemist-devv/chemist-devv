@@ -1,5 +1,5 @@
-# 💫 About Me:
-🔭 I’m currently working 
+## 💫 About Me:
+AFRICAN BUILDER
 
 
 ## 🌐 Socials:
